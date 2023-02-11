@@ -1,1 +1,1 @@
-My second readme
+My second readme growth mindset
